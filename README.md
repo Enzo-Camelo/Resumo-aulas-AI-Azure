@@ -1,0 +1,1 @@
+# Resumo-aulas-AI-Azure
